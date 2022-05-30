@@ -1,1 +1,0 @@
-# mendalka.github.io
